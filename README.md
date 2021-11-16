@@ -1,3 +1,5 @@
+**Full CV** (in Swedish) **on [LinkedIn](linkedin.com/in/karl-grauers-890a6561)**
+
 - 👋 Journalist turned programmer. Have a bachelors in Journalism and Media Production from Linnaeus University, Sweden. Worked in news media/journalism for 10+ years but started to learn programming in late 2018 through various online courses at different universities. Really loved coding from the start! 
 
 - 👋 To date I have completed about 2 years worth of programming/web dev/network courses at university level. Currently looking for my first job in the industry. My main focus is front-end web dev./ app dev. but I enjoy working across the whole stack.
