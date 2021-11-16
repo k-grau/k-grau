@@ -1,4 +1,4 @@
-**Full CV** (in Swedish) **on [LinkedIn](linkedin.com/in/karl-grauers-890a6561)**
+**Full CV** (in Swedish) **on [LinkedIn](https://www.linkedin.com/in/karl-grauers-7009aa41/?originalSubdomain=se)**
 
 - 👋 Journalist turned programmer. Have a bachelors in Journalism and Media Production from Linnaeus University, Sweden. Worked in news media/journalism for 10+ years but started to learn programming in late 2018 through various online courses at different universities. Really loved coding from the start! 
 
